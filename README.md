@@ -1,1 +1,1 @@
-https://shibobo.github.io/happybirthday/
+https://seamor.github.io/100天/
