@@ -1,1 +1,1 @@
-https://seamor.github.io/100天/
+https://Seamor.github.io/100天/
